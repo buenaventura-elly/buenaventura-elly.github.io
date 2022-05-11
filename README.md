@@ -2,7 +2,7 @@
 
 # This is all about my characters lore. Enjoy!
 
-![eli_oc](https://user-images.githubusercontent.com/102712746/167818002-a5ace9d3-6ff7-4045-ac45-a65fc9474882.png)|=500x600
+![eli_oc](https://user-images.githubusercontent.com/102712746/167818002-a5ace9d3-6ff7-4045-ac45-a65fc9474882.png)
 ## Eli M. Santiago
 Someone who works for the syndicates. She never really planned on working for a famous syndicate group, but her brother just had to go and sabotage her happy little life. Don't worry, she doesn't do anything that severely bad. She was just forced to work so that she can survive the waves of debt and loan sharks that come after her because of her brother. Despite that, she works hard. Maybe she could find a better job someday. She lives in an apartment in Neon District, dated in 2047. 
 
